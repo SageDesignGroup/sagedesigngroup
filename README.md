@@ -1,3 +1,4 @@
+SAGE DESIGN GROUP 
 Creative Solutions to Grow Your Business™
 
 Our VISION: Sage Design Group wants to be the go-to-place for ideas that help CREATE, INSPIRE and GROW profitable businesses through meaningful human connections. We strive to foster results oriented communication campaigns to enhance our client's image, improve their sales and maximize their ROI.
@@ -8,5 +9,7 @@ Our GOALS: Sage Design Group's goal is to create positive awareness of your comp
 
 https://annettesage.com
 https://sagedesigngroup.biz
+https://merch-plus-swag.com
 https://sagedesigngroup.shop
 https://sagedesigngroup.online
+
