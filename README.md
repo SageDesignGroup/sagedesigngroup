@@ -14,3 +14,20 @@ https://merch-plus-swag.com
 https://sagedesigngroup.shop
 https://sagedesigngroup.online
 
+********************
+
+ABOUT ANNETTE SAGE
+
+Sage Design Group was founded by Creative/Art Director and Marketing Expert Annette C. Sage, who has over 20 years of experience in the industry in various  leadership roles. Annette’s areas of expertise are in Advertising and Marketing, Lead Generation, Business Development and Identity Branding. Annette has helped Entrepreneurs grow billion dollar brands.
+
+Annette is also an Award Winning Photographer and Advertising Designer who has been featured in publications and art gallery exhibitions. Her educational background includes Associates Degrees in both Commercial Art and Photography, a BA in Visual Communications and an MBA in International Marketing. She also taught Multimedia at ITT Technical Institute.
+
+Throughout the years, Annette has worked, networked and consulted with many industry leaders and has made strategic alliances with top professionals. Annette is an asset to any team bringing her experience and multi-talents to the table.
+
+Discover more about Annette by visiting AnnetteSage.com.
+
+https://annettesage.com
+https://sagedesigngroup.biz
+https://merch-plus-swag.com
+https://sagedesigngroup.shop
+https://sagedesigngroup.online
