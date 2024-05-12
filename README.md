@@ -8,11 +8,16 @@ Our STORY: Sage Design Group is an advertising agency founded in 2005 by Art Dir
 
 Our GOALS: Sage Design Group's goal is to create positive awareness of your company - locally, regionally or in the worldwide marketplace. We work to enhance profitability and grow your customer base. Sage Design Group can assist you in creating a brand identity that will give you a competitive edge and open doors to greater business opportunities.
 
-https://annettesage.com
-https://sagedesigngroup.biz
-https://merch-plus-swag.com
-https://shop.sagedesigngroup.biz
-https://sagedesigngroup.biz/store/
+https://annettesage.com 
+
+https://sagedesigngroup.biz 
+
+https://merch-plus-swag.com 
+
+https://shop.sagedesigngroup.biz 
+
+https://sagedesigngroup.biz/store/ 
+
 
 ********************
 
@@ -28,8 +33,13 @@ Beyond her impressive credentials, Annette’s secret sauce lies in her ability 
 
 Ready to witness the magic firsthand? Explore the world of Annette C. Sage by visiting the websites below and prepared to be inspired.
 
-https://annettesage.com
-https://sagedesigngroup.biz
-https://merch-plus-swag.com
-https://shop.sagedesigngroup.biz
-https://sagedesigngroup.biz/store/
+https://annettesage.com 
+
+https://sagedesigngroup.biz 
+
+https://merch-plus-swag.com 
+
+https://shop.sagedesigngroup.biz 
+
+https://sagedesigngroup.biz/store/ 
+
