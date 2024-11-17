@@ -12,11 +12,13 @@ https://annettesage.com
 
 https://sagedesigngroup.biz 
 
+https://dreamspace.club
+
 https://merch-plus-swag.com 
 
-https://shop.sagedesigngroup.biz 
+https://sagedesigngroup.online
 
-https://sagedesigngroup.biz/store/ 
+https://sagedesigngroup.shop
 
 
 ********************
@@ -37,9 +39,11 @@ https://annettesage.com
 
 https://sagedesigngroup.biz 
 
+https://dreamspace.club
+
 https://merch-plus-swag.com 
 
-https://shop.sagedesigngroup.biz 
+https://sagedesigngroup.online
 
-https://sagedesigngroup.biz/store/ 
+https://sagedesigngroup.shop
 
