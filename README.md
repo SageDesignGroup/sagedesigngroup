@@ -40,7 +40,7 @@ _Living Authentically. Leading Boldly.™_ -
 
 By offering such a wide range of services, Sage Design Group aims to streamline the process for businesses and individuals looking to optimize their creative efforts, improve their brand image, and elevate their environments. Through its suite of specialized entities, Sage Design Group provides an all-encompassing approach to growing your business, building brand identity, and creating memorable experiences.
 
-For more information about Sage Design Group and its various entities, please visit [Sage Design Group](https://sagedesigngroup.biz/) [(sagedesigngroup.biz)](https://sagedesigngroup.biz/).
+For more information about Sage Design Group and its various entities, please visit [Sage Design Group](https://sagedesigngroup.biz/) ([sagedesigngroup.biz])(https://sagedesigngroup.biz/).
 
 - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -
 
