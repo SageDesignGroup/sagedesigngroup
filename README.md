@@ -8,24 +8,35 @@ Our STORY: Sage Design Group is an advertising agency founded in 2005 by Art Dir
 
 Our GOALS: Sage Design Group's goal is to create positive awareness of your company - locally, regionally or in the worldwide marketplace. We work to enhance profitability and grow your customer base. Sage Design Group can assist you in creating a brand identity that will give you a competitive edge and open doors to greater business opportunities.
 
-https://annettesage.com 
+sagedesigngroup.biz
 
-https://sagedesigngroup.biz 
+- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -
 
-https://dreamspace.club
+Sage Design Group – Creative Solutions to Grow Your Business.™
+- https://sagedesigngroup.biz/
 
-https://merch-plus-swag.com 
+MERCH + SWAG™ – Empowering Brands with Eclectic Merchandise + Corporate Swag.™
+- https://merch-plus-swag.com/
 
-https://sagedesigngroup.online
+DREAMSPACE™ – Designs that Define Spaces that Inspire.™
+- https://dreamspace.club/
 
-https://sagedesigngroup.shop
+Sage Design Group's Shop – Where Style, Function, and Innovation Come Together.™
+- https://sagedesigngroup.shop/
 
+Sage Design Group Online – Empowering Entrepreneurs, One Strategy at a Time.™
+- https://sagedesigngroup.online/
 
-********************
+AnnetteSage.com – Living Authentically. Leading Boldly.™
+- https://annettesage.com/
 
-ABOUT ANNETTE SAGE
+- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -
 
-Annette C. Sage is a dynamic Creative/Art Director and Marketing Maven with over two decades of industry immersion. With a kaleidoscope of skills spanning Advertising and Marketing, Lead Generation, Business Development, and Identity Branding, Annette is the alchemist behind billion-dollar brand transformations.
+ANNETTE C. SAGE
+
+AnnetteSage.com – Living Authentically. Leading Boldly.™
+
+Introducing the visionary force behind Sage Design Group, DREAMSPACE™ and MERCH + SWAG™: Annette C. Sage, a dynamic Creative/Art Director and Marketing Maven with over two decades of industry immersion. With a kaleidoscope of skills spanning Advertising and Marketing, Lead Generation, Business Development, and Identity Branding, Annette is the alchemist behind billion-dollar brand transformations.
 
 Annette’s talents don’t stop there. She’s a luminary in the realms of photography and advertising design, boasting a trophy case adorned with accolades and a portfolio that graces the pages of prestigious publications and art gallery exhibits alike.
 
@@ -35,15 +46,20 @@ Beyond her impressive credentials, Annette’s secret sauce lies in her ability 
 
 Ready to witness the magic firsthand? Explore the world of Annette C. Sage by visiting the websites below and prepared to be inspired.
 
-https://annettesage.com 
+Sage Design Group – Creative Solutions to Grow Your Business.™
+- https://sagedesigngroup.biz/
 
-https://sagedesigngroup.biz 
+MERCH + SWAG™ – Empowering Brands with Eclectic Merchandise + Corporate Swag.™
+- https://merch-plus-swag.com/
 
-https://dreamspace.club
+DREAMSPACE™ – Designs that Define Spaces that Inspire.™
+- https://dreamspace.club/
 
-https://merch-plus-swag.com 
+Sage Design Group's Shop – Where Style, Function, and Innovation Come Together.™
+- https://sagedesigngroup.shop/
 
-https://sagedesigngroup.online
+Sage Design Group Online – Empowering Entrepreneurs, One Strategy at a Time.™
+- https://sagedesigngroup.online/
 
-https://sagedesigngroup.shop
-
+AnnetteSage.com – Living Authentically. Leading Boldly.™
+- https://annettesage.com/
