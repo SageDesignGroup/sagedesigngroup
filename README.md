@@ -1,4 +1,4 @@
-**[Sage Design Group](https://sagedesigngroup.biz/)**
+**[SAGE DESIGN GROUP](https://sagedesigngroup.biz/)**
 
 Creative Solutions to Grow Your Business.™
 
